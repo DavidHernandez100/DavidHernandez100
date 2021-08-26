@@ -1,8 +1,8 @@
-## Hola a todos !
+## Hola a todos 🙋‍♂️!
 
 
 ### Mi nombre es Luis David, tengo 21 años y soy de Tijuana, Baja California.
-#### 🎇Actualmente estudio en el Instituto Tecnológico de Tijuana en 7mo semestre en la carrera de Ingeniería en Sistemas Computacionales.🎇
+#### Actualmente estudio en el Instituto Tecnológico de Tijuana en 7mo semestre en la carrera de Ingeniería en Sistemas Computacionales.  
 
 
 ✅ Me encantan los temas de tecnología y el conocer como ha sido la evolución y la inovación de las cosas.
