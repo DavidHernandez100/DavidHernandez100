@@ -11,6 +11,8 @@
 
 ✅ He trabajo en proyectos personales en los cuales he podido desarrollar documentación para siempre tener en cuenta la teoría de mis trabajos.
 
+✅ Responsable y con ganas de ser mejor cada día.
+
 |       |                     LUNES                    |                    MARTES                    |                   MIÉRCOLES                  |                    JUEVES                    |                    VIERNES                   |
 |-------|:--------------------------------------------:|:--------------------------------------------:|:--------------------------------------------:|:--------------------------------------------:|:--------------------------------------------:|
 | 13:00 |           TALLER DE INVESTIGACION I          |           TALLER DE INVESTIGACION I          |           TALLER DE INVESTIGACION I          |           TALLER DE INVESTIGACION I          |                                              |
