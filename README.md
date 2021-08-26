@@ -1,4 +1,4 @@
-## Hola a todos 🙋‍♂️!
+## Hola a todos 🙋‍♂️
 
 
 ### ✨ Mi nombre es Luis David, tengo 21 años y soy de Tijuana, Baja California.
