@@ -6,6 +6,7 @@
 Me encantan los temas de tecnología y el conocer como ha sido la evolución y la inovación de las cosas.
 
 ✅ Actualmente manejo el lenguaje de programación C#, de igual manera, conozco y manejo lo básico de MySQL.
+
 ✅ He trabajo en proyectos personales en los cuales he podido desarrollar documentación para siempre tener en cuenta la teoría de mis trabajos.
 
 |       |                     LUNES                    |                    MARTES                    |                   MIÉRCOLES                  |                    JUEVES                    |                    VIERNES                   |
